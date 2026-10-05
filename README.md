@@ -1,1 +1,0 @@
-# mamuriy-huquq-2
